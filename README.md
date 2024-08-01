@@ -1,4 +1,5 @@
-![6](https://github.com/user-attachments/assets/f2dddd41-69d8-4e4f-9204-d7ced30466dc)# Pyramid-of-Pain
+
+# Pyramid-of-Pain
 
 ![1](https://github.com/user-attachments/assets/c8d98c6c-71be-482d-a5a9-c7ac4dd72fe4)
 
